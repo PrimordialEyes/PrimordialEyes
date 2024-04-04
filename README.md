@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PrimordialEyes (or just prime)
+- 👀 I’m interested in: web design coding and anthro animals
+- 🌱 I’m currently learning: html5, javascript.
+- ✨ Wanting To Learn: css, c#, python, java, and more!
+- 💞️ I’m looking to collaborate on: anything, i need coding and web design practice.
+- 😄 Pronouns: dat/nikka.
+- ⚡ Fun fact: im a furry (but im not proud of it).
